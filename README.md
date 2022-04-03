@@ -1,5 +1,7 @@
 # async_practice
 
+https://www.youtube.com/watch?v=t3gCK9QqXWU&t=1206s
+
 
 https://www.youtube.com/watch?v=iG6fr81xHKA
 
